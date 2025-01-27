@@ -1,1 +1,1 @@
-https://landing.epikforge.hu/gumicukorshop
+https://landing.epikforge.com/gumicukorshop
